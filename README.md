@@ -1,0 +1,1 @@
+The Czech Flag created by using scalable vector graphics
